@@ -1,11 +1,11 @@
-꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=urangel+.&color=540b0e&style=plastic)꒱
+꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=ur.angel&color=540b0e&style=plastic)꒱![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/283cb0c0-dafe-4b6f-ad59-5f5d3e7e9f7f)
 
 
 
 
 
 
-gifs+stamps+blinkies whatever !!
+ ![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/39f121c3-13b8-4a25-86fc-76a0dbe335c8) gifs+stamps+blinkies whatever !!
 
 
 
