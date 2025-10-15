@@ -1,3 +1,7 @@
+![d561r6o-f31f6a98-17bc-44ca-a120-8076f5a28aef](https://github.com/user-attachments/assets/8ab2fb5c-ef71-486b-bd19-4d537d0ef077)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=AA2013&background=80000000&width=435&lines=ring+ring%2C;%22whose+calling+this+late.%22;%22can+i+get+a+uhh+extra+extra..;extra+extra+extra+extra;cheese+pizza+%3F%22;%22FUCK+NO%22)](https://git.io/typing-svg)
+
+
 
 
 ꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=ur.angel&color=540b0e&style=plastic)꒱![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/283cb0c0-dafe-4b6f-ad59-5f5d3e7e9f7f)
@@ -56,6 +60,8 @@ i fw this ok?.. ![rZ9PpAv](https://github.com/user-attachments/assets/98c976b6-d
 <img width="99" height="56" alt="dk1g7vs-2dd60512-3308-46a8-a8b2-8e5b4c4646cb" src="https://github.com/user-attachments/assets/3b74b52c-1117-4a90-9f6c-9f5105e5901d" />
 ![d561r6o-f31f6a98-17bc-44ca-a120-8076f5a28aef](https://github.com/user-attachments/assets/f4ac1114-1d41-4d7c-81c7-f9abc824e77b)
 <img width="99" height="56" alt="dk1g7vs-2dd60512-3308-46a8-a8b2-8e5b4c4646cb" src="https://github.com/user-attachments/assets/3b072bdb-25d7-4e8e-a0c0-f355fddb3765" />
+![elZLOl3](https://github.com/user-attachments/assets/f263bef5-7515-497d-93ac-214d5b3ebd8c)
+![rhfjerhfnefj](https://github.com/user-attachments/assets/04e4f357-b472-43d4-9f9d-5ae760cbb610)
 
 
 ---
