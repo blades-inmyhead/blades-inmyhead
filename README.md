@@ -1,4 +1,11 @@
+
+
 ꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=ur.angel&color=540b0e&style=plastic)꒱![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/283cb0c0-dafe-4b6f-ad59-5f5d3e7e9f7f)
+
+
+<img width="1324" height="451" alt="g" src="https://github.com/user-attachments/assets/bbfbb4b6-1caf-43c3-86a7-258cc333133e" />
+
+i fw this ok?.. ![rZ9PpAv](https://github.com/user-attachments/assets/98c976b6-d135-46a0-93cf-85f2b402b050)
 
 
 
@@ -8,6 +15,8 @@
 
 
 
+![d561r6o-f31f6a98-17bc-44ca-a120-8076f5a28aef](https://github.com/user-attachments/assets/481d5391-5a6d-4df1-b0d6-80e2d578d4f6)
+![elZLOl3](https://github.com/user-attachments/assets/b87e27f1-ab1d-44c5-9654-6b64d24a68a1)
 ![blinkiesCafe-b1](https://github.com/user-attachments/assets/7d2d7fa7-5c5c-48c4-a0fa-5d8244ab0cf7)
 ![undefined - Imgur](https://github.com/user-attachments/assets/a1fedd5f-0a17-4587-b65b-1dbd699e7fff)
 <img width="110" height="111" alt="acdasd" src="https://github.com/user-attachments/assets/4e314cc7-0b86-44a7-bd16-3a92df159f49" />
@@ -40,6 +49,13 @@
 ![d4898dj-00ac3089-77d7-4622-be35-1fd886ad2a01](https://github.com/user-attachments/assets/49135805-c800-4567-b882-f5b3696d00c4)
 ![022223-B3-F3-CB-478-B-8-DB4-4-D540-FD1-A49-B](https://github.com/user-attachments/assets/eb49ef32-b402-4c00-93e3-bf92bae9932a)
 ![d4898dj-00ac3089-77d7-4622-be35-1fd886ad2a01](https://github.com/user-attachments/assets/9fc79901-ce98-46cf-a032-95255708ff2b)
+<img width="99" height="56" alt="022223-B3-F3-CB-478-B-8-DB4-4-D540-FD1-A49-B" src="https://github.com/user-attachments/assets/49444d32-e756-4777-96cb-e28cb43d2325" />
+<img width="99" height="56" alt="Untitled11_20251014234925" src="https://github.com/user-attachments/assets/40181d65-9637-4c73-8a54-20510ea2c3f5" />
+<img width="99" height="56" alt="022223-B3-F3-CB-478-B-8-DB4-4-D540-FD1-A49-B" src="https://github.com/user-attachments/assets/bc463761-0dbe-4aca-b210-f3bb23d163f4" />
+![d561r6o-f31f6a98-17bc-44ca-a120-8076f5a28aef](https://github.com/user-attachments/assets/12f678f9-96eb-4e40-9567-c8d6b2390ba0)
+<img width="99" height="56" alt="dk1g7vs-2dd60512-3308-46a8-a8b2-8e5b4c4646cb" src="https://github.com/user-attachments/assets/3b74b52c-1117-4a90-9f6c-9f5105e5901d" />
+![d561r6o-f31f6a98-17bc-44ca-a120-8076f5a28aef](https://github.com/user-attachments/assets/f4ac1114-1d41-4d7c-81c7-f9abc824e77b)
+<img width="99" height="56" alt="dk1g7vs-2dd60512-3308-46a8-a8b2-8e5b4c4646cb" src="https://github.com/user-attachments/assets/3b072bdb-25d7-4e8e-a0c0-f355fddb3765" />
 
 
 ---
