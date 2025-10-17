@@ -3,10 +3,6 @@
 
 ꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=ur.angel&color=ad2e49&style=plastic)꒱![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/283cb0c0-dafe-4b6f-ad59-5f5d3e7e9f7f)
 
-<img width="2048" height="2048" alt="lkjhgfdytrew" src="https://github.com/user-attachments/assets/2367f8e2-abc9-4861-a826-a362c893f176" />
-
-
-
 
 
 
