@@ -4,8 +4,9 @@
 ꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=ur.angel&color=ad2e49&style=plastic)꒱![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/283cb0c0-dafe-4b6f-ad59-5f5d3e7e9f7f)
 
 
+![hugyf](https://github.com/user-attachments/assets/31c30db7-c572-4113-ac6a-a4d487a3eed1)
 
-
+---
 <img width="1324" height="451" alt="g" src="https://github.com/user-attachments/assets/bbfbb4b6-1caf-43c3-86a7-258cc333133e" />
 
 i fw this ok?.. ![rZ9PpAv](https://github.com/user-attachments/assets/98c976b6-d135-46a0-93cf-85f2b402b050)
