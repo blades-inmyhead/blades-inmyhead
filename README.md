@@ -1,10 +1,7 @@
-![d561r6o-f31f6a98-17bc-44ca-a120-8076f5a28aef](https://github.com/user-attachments/assets/8ab2fb5c-ef71-486b-bd19-4d537d0ef077)
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=AA2013&background=80000000&width=435&lines=ring+ring%2C;%22whose+calling+this+late.%22;%22can+i+get+a+uhh+extra+extra..;extra+extra+extra+extra;cheese+pizza+%3F%22;%22FUCK+NO%22)](https://git.io/typing-svg)
+<img width="2048" height="2048" alt="lkjhgfdytrew" src="https://github.com/user-attachments/assets/eb4a443b-e487-43f6-8f48-71dfa769c387" />[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=1000&color=96536A&center=true&width=435&lines=internet+angel!+that's+me!;+im+your+spotlight+of+attention!;come+on!+its+not+a+dream+isnt+it!)](https://git.io/typing-svg)
 
 
-
-
-꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=ur.angel&color=540b0e&style=plastic)꒱![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/283cb0c0-dafe-4b6f-ad59-5f5d3e7e9f7f)
+꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=ur.angel&color=ad2e49&style=plastic)꒱![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/283cb0c0-dafe-4b6f-ad59-5f5d3e7e9f7f)
 
 
 <img width="1324" height="451" alt="g" src="https://github.com/user-attachments/assets/bbfbb4b6-1caf-43c3-86a7-258cc333133e" />
