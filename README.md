@@ -66,6 +66,6 @@ i fw this ok?.. ![rZ9PpAv](https://github.com/user-attachments/assets/98c976b6-d
 
 ---
 art gallery
-hi i have commisions whisp me for info..
+hi ts mi art ok ? :eye-roll:
 
 <img width="1265" height="738" alt="2025_10_16_05m_Kleki" src="https://github.com/user-attachments/assets/3c4d33f3-a8a4-4821-b9f9-2875281d09d5" />
