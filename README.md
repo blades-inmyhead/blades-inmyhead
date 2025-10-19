@@ -6,16 +6,21 @@
 
 ![hugyf](https://github.com/user-attachments/assets/31c30db7-c572-4113-ac6a-a4d487a3eed1)
 
+info about me!
 ---
-<img width="1324" height="451" alt="g" src="https://github.com/user-attachments/assets/bbfbb4b6-1caf-43c3-86a7-258cc333133e" />
 
-i fw this ok?.. ![rZ9PpAv](https://github.com/user-attachments/assets/98c976b6-d135-46a0-93cf-85f2b402b050)
+---
+**dni**
 
+people under 9 years old and above 20 years old are on iwec/dni, darkshippers or any of those weird labels PLEASE DO NOT. int with me or my friends, troll skins [for example the uhm penisland.. if yk dude], weirdos, forsaken fandom on extreme thin ice unless i int OR know you, random people if im with friends or afk unless i int first
 
+---
 
+**byi**
 
+my humor changes over time due to influence of friends!,  i may make shooting myself jokes or dark humor sometimes just lmk if ur uncomf! i may hide due to being uncomfortable or you copied me or my friends.![rZ9PpAv](https://github.com/user-attachments/assets/98c976b6-d135-46a0-93cf-85f2b402b050)
 
-
+---
 <img width="311" height="57" alt="sdcfgvhjkl" src="https://github.com/user-attachments/assets/d994e809-1d82-4180-b893-a2961f0f9f80" />
 
 OH FUCK NO ..
@@ -27,11 +32,11 @@ OH FUCK NO ..
 
 
 
- ![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/39f121c3-13b8-4a25-86fc-76a0dbe335c8) gifs+stamps+blinkies whatever.. too many i fear.
+> ![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/39f121c3-13b8-4a25-86fc-76a0dbe335c8) gifs+stamps+blinkies whatever.. too many i fear.
 
 
 
-![d561r6o-f31f6a98-17bc-44ca-a120-8076f5a28aef](https://github.com/user-attachments/assets/481d5391-5a6d-4df1-b0d6-80e2d578d4f6)
+<![d561r6o-f31f6a98-17bc-44ca-a120-8076f5a28aef](https://github.com/user-attachments/assets/481d5391-5a6d-4df1-b0d6-80e2d578d4f6)
 ![elZLOl3](https://github.com/user-attachments/assets/b87e27f1-ab1d-44c5-9654-6b64d24a68a1)
 ![blinkiesCafe-b1](https://github.com/user-attachments/assets/7d2d7fa7-5c5c-48c4-a0fa-5d8244ab0cf7)
 ![undefined - Imgur](https://github.com/user-attachments/assets/a1fedd5f-0a17-4587-b65b-1dbd699e7fff)
@@ -73,8 +78,7 @@ OH FUCK NO ..
 ![d561r6o-f31f6a98-17bc-44ca-a120-8076f5a28aef](https://github.com/user-attachments/assets/f4ac1114-1d41-4d7c-81c7-f9abc824e77b)
 <img width="99" height="56" alt="dk1g7vs-2dd60512-3308-46a8-a8b2-8e5b4c4646cb" src="https://github.com/user-attachments/assets/3b072bdb-25d7-4e8e-a0c0-f355fddb3765" />
 ![elZLOl3](https://github.com/user-attachments/assets/f263bef5-7515-497d-93ac-214d5b3ebd8c)
-![rhfjerhfnefj](https://github.com/user-attachments/assets/04e4f357-b472-43d4-9f9d-5ae760cbb610)
-
+![rhfjerhfnefj](https://github.com/user-attachments/assets/04e4f357-b472-43d4-9f9d-5ae760cbb610)>
 
 ---
 art gallery
