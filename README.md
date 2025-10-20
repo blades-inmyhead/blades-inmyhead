@@ -21,10 +21,7 @@ people under 9 years old and above 20 years old are on iwec/dni, darkshippers or
 my humor changes over time due to influence of friends!,  i may make shooting myself jokes or dark humor sometimes just lmk if ur uncomf! i may hide due to being uncomfortable or you copied me or my friends.![rZ9PpAv](https://github.com/user-attachments/assets/98c976b6-d135-46a0-93cf-85f2b402b050)
 
 ---
-<img width="311" height="57" alt="sdcfgvhjkl" src="https://github.com/user-attachments/assets/d994e809-1d82-4180-b893-a2961f0f9f80" />
-
-OH FUCK NO ..
-67 roblox obby escape the 67 67 horror escape mdinight 67 wow
+theres someone named ace spreading fake rumors of me please be aware.
 
 
 
