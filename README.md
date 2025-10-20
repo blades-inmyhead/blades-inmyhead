@@ -21,8 +21,7 @@ people under 9 years old and above 20 years old are on iwec/dni, darkshippers or
 my humor changes over time due to influence of friends!,  i may make shooting myself jokes or dark humor sometimes just lmk if ur uncomf! i may hide due to being uncomfortable or you copied me or my friends.![rZ9PpAv](https://github.com/user-attachments/assets/98c976b6-d135-46a0-93cf-85f2b402b050)
 
 ---
-theres someone named ace spreading fake rumors of me please be aware.
-
+uhmmmm hmmm someones spreading rumors of me?..
 
 
 
