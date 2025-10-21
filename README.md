@@ -1,4 +1,6 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=1000&color=96536A&center=true&width=435&lines=internet+angel!+that's+me!;+im+your+spotlight+of+attention!;come+on!+its+not+a+dream+isnt+it!)](https://git.io/typing-svg)
+
+![087F2A1F-B78E-4217-8C5A-4428A569B000(1)](https://github.com/user-attachments/assets/4e85a83d-5b5c-420c-a697-7a2e1e0e2281)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=1000&color=96536A&center=true&width=435&lines=internet+angel!+that's+me!;+im+your+spotlight+of+attention!;come+on!+its+not+a+dream+isnt+it?)](https://git.io/typing-svg)
 
 
 ꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=ur.angel&color=ad2e49&style=plastic)꒱![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/283cb0c0-dafe-4b6f-ad59-5f5d3e7e9f7f)
@@ -28,7 +30,22 @@ uhmmmm hmmm someones spreading rumors of me?..
 
 
 
-> ![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/39f121c3-13b8-4a25-86fc-76a0dbe335c8) gifs+stamps+blinkies whatever.. too many i fear.
+> ![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/39f121c3-13b8-4a25-86fc-76a0dbe335c8) gifs+stamps+blinkies+imvu buttons whatever.. too many i fear.
+
+
+![mother](https://github.com/user-attachments/assets/b9249687-8230-4cc7-9051-a5d5b8c8da37)![happy](https://github.com/user-attachments/assets/71de099e-9c1d-480a-9074-a663e5b15529)
+![best-friend](https://github.com/user-attachments/assets/abfabd47-2daf-4301-9d64-26372b3171d1)![fresh](https://github.com/user-attachments/assets/46ea2d2a-93e0-4384-b7b8-2bee258d35c2)
+![creative](https://github.com/user-attachments/assets/2d2ad496-dde8-4b2c-9670-9bda53f0ee3d)![super](https://github.com/user-attachments/assets/a3b260dc-6174-45a8-9865-1205746be544)![nerd](https://github.com/user-attachments/assets/79672904-0d1f-41dd-83ae-bb98de591a6c)
+![hazardous](https://github.com/user-attachments/assets/aef34554-4e07-44f0-abe9-41b28ed3f9d0)![addictive](https://github.com/user-attachments/assets/af3e128c-a200-4e73-97c3-599cb1e69e3c)
+![3342-D3-F3-0-DF2-4556-A69-E-8090-F523-D966](https://github.com/user-attachments/assets/a7f2ad38-232f-4c55-bb3c-51f8a7df600a)
+
+![lolita](https://github.com/user-attachments/assets/5eabbffa-ff99-443a-9c91-8cdf28b9f79b)
+![hug-me](https://github.com/user-attachments/assets/2a9f14e7-ba27-4834-b17b-dd3f9db10df3)
+![meow](https://github.com/user-attachments/assets/fe17f372-70e0-46b3-9b46-acaaaec7cdf8)
+![darling](https://github.com/user-attachments/assets/a1efe665-b3cc-4cb1-89c4-345ce24450f2)
+![loved](https://github.com/user-attachments/assets/29692a87-1ffe-4caa-9646-57db82f3beac)
+![17](https://github.com/user-attachments/assets/6c5e298c-800d-41c2-bd76-adfc5710c139)
+
 
 
 
@@ -75,9 +92,15 @@ uhmmmm hmmm someones spreading rumors of me?..
 <img width="99" height="56" alt="dk1g7vs-2dd60512-3308-46a8-a8b2-8e5b4c4646cb" src="https://github.com/user-attachments/assets/3b072bdb-25d7-4e8e-a0c0-f355fddb3765" />
 ![elZLOl3](https://github.com/user-attachments/assets/f263bef5-7515-497d-93ac-214d5b3ebd8c)
 ![rhfjerhfnefj](https://github.com/user-attachments/assets/04e4f357-b472-43d4-9f9d-5ae760cbb610)>
+![3342-D3-F3-0-DF2-4556-A69-E-8090-F523-D966](https://github.com/user-attachments/assets/3988b6a6-1060-42a3-9a37-d5c4c3e90718)
 
 ---
-art gallery
+dump of pictures
 hi ts mi art ok ? :eye-roll:
 
 <img width="1265" height="738" alt="2025_10_16_05m_Kleki" src="https://github.com/user-attachments/assets/3c4d33f3-a8a4-4821-b9f9-2875281d09d5" />
+
+
+random thing i made at 4 am
+
+![picmix com_13125618](https://github.com/user-attachments/assets/f3d62ee0-0ecf-48a8-a416-a39d5dac6321)
