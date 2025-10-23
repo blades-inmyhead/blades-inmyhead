@@ -37,7 +37,6 @@ uhmmmm hmmm someones spreading rumors of me?..
 ![best-friend](https://github.com/user-attachments/assets/abfabd47-2daf-4301-9d64-26372b3171d1)![fresh](https://github.com/user-attachments/assets/46ea2d2a-93e0-4384-b7b8-2bee258d35c2)
 ![creative](https://github.com/user-attachments/assets/2d2ad496-dde8-4b2c-9670-9bda53f0ee3d)![super](https://github.com/user-attachments/assets/a3b260dc-6174-45a8-9865-1205746be544)![nerd](https://github.com/user-attachments/assets/79672904-0d1f-41dd-83ae-bb98de591a6c)
 ![hazardous](https://github.com/user-attachments/assets/aef34554-4e07-44f0-abe9-41b28ed3f9d0)![addictive](https://github.com/user-attachments/assets/af3e128c-a200-4e73-97c3-599cb1e69e3c)
-![3342-D3-F3-0-DF2-4556-A69-E-8090-F523-D966](https://github.com/user-attachments/assets/a7f2ad38-232f-4c55-bb3c-51f8a7df600a)
 
 ![lolita](https://github.com/user-attachments/assets/5eabbffa-ff99-443a-9c91-8cdf28b9f79b)
 ![hug-me](https://github.com/user-attachments/assets/2a9f14e7-ba27-4834-b17b-dd3f9db10df3)
@@ -91,8 +90,8 @@ uhmmmm hmmm someones spreading rumors of me?..
 ![d561r6o-f31f6a98-17bc-44ca-a120-8076f5a28aef](https://github.com/user-attachments/assets/f4ac1114-1d41-4d7c-81c7-f9abc824e77b)
 <img width="99" height="56" alt="dk1g7vs-2dd60512-3308-46a8-a8b2-8e5b4c4646cb" src="https://github.com/user-attachments/assets/3b072bdb-25d7-4e8e-a0c0-f355fddb3765" />
 ![elZLOl3](https://github.com/user-attachments/assets/f263bef5-7515-497d-93ac-214d5b3ebd8c)
-![rhfjerhfnefj](https://github.com/user-attachments/assets/04e4f357-b472-43d4-9f9d-5ae760cbb610)>
-![3342-D3-F3-0-DF2-4556-A69-E-8090-F523-D966](https://github.com/user-attachments/assets/3988b6a6-1060-42a3-9a37-d5c4c3e90718)
+![rhfjerhfnefj](https://github.com/user-attachments/assets/04e4f357-b472-43d4-9f9d-5ae760cbb610)
+![3342-D3-F3-0-DF2-4556-A69-E-8090-F523-D966](https://github.com/user-attachments/assets/3988b6a6-1060-42a3-9a37-d5c4c3e90718)>
 
 ---
 dump of pictures
