@@ -1,29 +1,17 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=7A0000&width=435&lines=kiss+me!+kiss+me!;you+want+my+heart+dont+you!;just+tell+me+you+love+me%2C+;and+its+all+yours+baby!)](https://git.io/typing-svg)
 
-![087F2A1F-B78E-4217-8C5A-4428A569B000(1)](https://github.com/user-attachments/assets/4e85a83d-5b5c-420c-a697-7a2e1e0e2281)
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=1000&color=96536A&center=true&width=435&lines=internet+angel!+that's+me!;+im+your+spotlight+of+attention!;come+on!+its+not+a+dream+isnt+it?)](https://git.io/typing-svg)
-
-
-꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=ur.angel&color=ad2e49&style=plastic)꒱![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/283cb0c0-dafe-4b6f-ad59-5f5d3e7e9f7f)
+꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=hatred&color=611212&style=plastic)꒱![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/283cb0c0-dafe-4b6f-ad59-5f5d3e7e9f7f)
 
 
-![hugyf](https://github.com/user-attachments/assets/31c30db7-c572-4113-ac6a-a4d487a3eed1)
+cuties u should follow 
+< @B1mjini @uxpr1ht  HI MY LITTLE GREMLINS:heart: , @Mordecai-thebird HI TWINN! , @black-sh33p + @DONOTCOPY-p1ssyy + @DoNotCopyy HI PARENTS!! 3
 
-info about me!
----
 
----
-**dni**
 
-people under 9 years old and above 20 years old are on iwec/dni, darkshippers or any of those weird labels PLEASE DO NOT. int with me or my friends, troll skins [for example the uhm penisland.. if yk dude], weirdos, forsaken fandom on extreme thin ice unless i int OR know you, random people if im with friends or afk unless i int first
 
----
+<img width="178" height="149" alt="wowhestrans" src="https://github.com/user-attachments/assets/41a755f4-7c49-4cff-8111-6e4b6c0be99d" />
 
-**byi**
 
-my humor changes over time due to influence of friends!,  i may make shooting myself jokes or dark humor sometimes just lmk if ur uncomf! i may hide due to being uncomfortable or you copied me or my friends.![rZ9PpAv](https://github.com/user-attachments/assets/98c976b6-d135-46a0-93cf-85f2b402b050)
-
----
-uhmmmm hmmm someones spreading rumors of me?..
 
 
 
@@ -93,8 +81,11 @@ uhmmmm hmmm someones spreading rumors of me?..
 ![rhfjerhfnefj](https://github.com/user-attachments/assets/04e4f357-b472-43d4-9f9d-5ae760cbb610)
 ![3342-D3-F3-0-DF2-4556-A69-E-8090-F523-D966](https://github.com/user-attachments/assets/3988b6a6-1060-42a3-9a37-d5c4c3e90718)>
 
----
-dump of pictures
+
+hi someones spreading rumors of me. pls dont believe em ;w;
+
+
+picture dump
 hi ts mi art ok ? :eye-roll:
 
 <img width="1265" height="738" alt="2025_10_16_05m_Kleki" src="https://github.com/user-attachments/assets/3c4d33f3-a8a4-4821-b9f9-2875281d09d5" />
