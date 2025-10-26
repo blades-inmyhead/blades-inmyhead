@@ -1,15 +1,15 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=7A0000&width=435&lines=kiss+me!+kiss+me!;you+want+my+heart+dont+you!;just+tell+me+you+love+me%2C+;and+its+all+yours+baby!)](https://git.io/typing-svg)
+
 
 ꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=hatred&color=611212&style=plastic)꒱![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/283cb0c0-dafe-4b6f-ad59-5f5d3e7e9f7f)
 
 
-cuties u should follow 
-< @B1mjini @uxpr1ht  HI MY LITTLE GREMLINS:heart: , @Mordecai-thebird HI TWINN! , @black-sh33p + @DONOTCOPY-p1ssyy + @DoNotCopyy HI PARENTS!! 3
+cuties
+<@B1mjini @uxpr1ht HELLO MY CHILDREN.. !!!!!!!!!!!!!! , @Mordecai-thebird HELLO TWIN   k , @black-sh33p + @DONOTCOPY-p1ssyy + @DoNotCopyy HI MAMAAAA HI PAPAAAA!!!!3
 
 
 
+![IMG-8955](https://github.com/user-attachments/assets/95a4e385-ff01-494d-9739-31fefd69c828)
 
-<img width="178" height="149" alt="wowhestrans" src="https://github.com/user-attachments/assets/41a755f4-7c49-4cff-8111-6e4b6c0be99d" />
 
 
 
