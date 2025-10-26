@@ -85,6 +85,20 @@ cuties u should follow
 ![oreo](https://github.com/user-attachments/assets/6cd86786-1d4b-4f1b-8944-b6546c6d037a)
 ![programmer](https://github.com/user-attachments/assets/36b5cba8-ad1d-4550-8c4c-d43e1e14e4b8)
 ![life is fun](https://github.com/user-attachments/assets/6ec83bef-538d-4ca8-82c1-bad5d8e67b6a)
+<img width="88" height="31" alt="youtub lalaallala" src="https://github.com/user-attachments/assets/2a1f3522-ccc2-4422-8038-c0945f8fa801" />
+<img width="88" height="31" alt="caaaaaaaaaaaaaaaaat" src="https://github.com/user-attachments/assets/c9912aec-878d-46f8-9d3c-f933900d1217" />
+![strawberri](https://github.com/user-attachments/assets/3b01a470-82ec-46f3-87b1-ce9d30095768)
+![windows playe r](https://github.com/user-attachments/assets/2947384c-a69e-46de-b211-d8b96f9379e8)
+<img width="88" height="31" alt="minecraf t" src="https://github.com/user-attachments/assets/d7b7666b-f5a1-4f95-b94e-4aed69e0baee" />
+<img width="88" height="31" alt="gmail" src="https://github.com/user-attachments/assets/34d2ba62-8b2b-4310-bf49-674391386842" />
+![hello kitty](https://github.com/user-attachments/assets/43900b3d-0a31-42ab-923c-a2e09b3ff1ad)
+<img width="88" height="31" alt="have a smile" src="https://github.com/user-attachments/assets/5c2b3647-de02-46df-9829-0bcfd5abd41b" />
+![sawnic](https://github.com/user-attachments/assets/0d17ce8d-7e98-46b4-a8b9-80f31f68eff5)
+<img width="88" height="31" alt="google" src="https://github.com/user-attachments/assets/4fda846a-080b-40eb-830a-fde32d6b2d28" />
+<img width="99" height="55" alt="brah my memory SUCKS" src="https://github.com/user-attachments/assets/969f32f6-7e71-4374-b69b-95b1f53e4507" />
+![mikumiku](https://github.com/user-attachments/assets/bedcc918-dde3-4fb7-89f9-1e94855b5e1b)
+<img width="99" height="56" alt="amongus" src="https://github.com/user-attachments/assets/465262e7-3024-44f2-ae65-c22a79352edc" />
+<img width="99" height="56" alt="02208168_original" src="https://github.com/user-attachments/assets/2432fabb-c894-4832-9696-8398f9098541" />
 
 
 hi someones spreading FAKE rumors of me. pls dont believe em ;w;
