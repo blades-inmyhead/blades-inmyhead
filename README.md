@@ -80,9 +80,14 @@ cuties u should follow
 ![elZLOl3](https://github.com/user-attachments/assets/f263bef5-7515-497d-93ac-214d5b3ebd8c)
 ![rhfjerhfnefj](https://github.com/user-attachments/assets/04e4f357-b472-43d4-9f9d-5ae760cbb610)
 ![3342-D3-F3-0-DF2-4556-A69-E-8090-F523-D966](https://github.com/user-attachments/assets/3988b6a6-1060-42a3-9a37-d5c4c3e90718)>
+![706014obs23pkvu8](https://github.com/user-attachments/assets/c21b931d-ac15-49fb-b87c-2ec112c39d92)
+![596139cp0vfzvrhv](https://github.com/user-attachments/assets/df66d57f-628e-45c6-b81a-b8e314892ddb)
+![oreo](https://github.com/user-attachments/assets/6cd86786-1d4b-4f1b-8944-b6546c6d037a)
+![programmer](https://github.com/user-attachments/assets/36b5cba8-ad1d-4550-8c4c-d43e1e14e4b8)
+![life is fun](https://github.com/user-attachments/assets/6ec83bef-538d-4ca8-82c1-bad5d8e67b6a)
 
 
-hi someones spreading rumors of me. pls dont believe em ;w;
+hi someones spreading FAKE rumors of me. pls dont believe em ;w;
 
 
 picture dump
