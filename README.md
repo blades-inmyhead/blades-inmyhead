@@ -1,11 +1,12 @@
 
 
+
 ꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=hatred&color=611212&style=plastic)꒱![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/283cb0c0-dafe-4b6f-ad59-5f5d3e7e9f7f)
 
 
 cuties
 <@B1mjini @uxpr1ht HELLO MY CHILDREN.. !!!!!!!!!!!!!! , @Mordecai-thebird HELLO TWIN   k , @black-sh33p + @DONOTCOPY-p1ssyy + @DoNotCopyy HI MAMAAAA HI PAPAAAA!!!!3
-
+they all play.,, ![life is fun](https://github.com/user-attachments/assets/de545a23-840c-4f62-ba67-b7ba150ee260) 
 
 
 ![IMG-8955](https://github.com/user-attachments/assets/95a4e385-ff01-494d-9739-31fefd69c828)
@@ -20,7 +21,7 @@ cuties
 
 > ![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/39f121c3-13b8-4a25-86fc-76a0dbe335c8) gifs+stamps+blinkies+imvu buttons whatever.. too many i fear.
 
-
+![oreo](https://github.com/user-attachments/assets/59c5a53e-4b1c-419b-bbef-2874355c796d) 
 ![mother](https://github.com/user-attachments/assets/b9249687-8230-4cc7-9051-a5d5b8c8da37)![happy](https://github.com/user-attachments/assets/71de099e-9c1d-480a-9074-a663e5b15529)
 ![best-friend](https://github.com/user-attachments/assets/abfabd47-2daf-4301-9d64-26372b3171d1)![fresh](https://github.com/user-attachments/assets/46ea2d2a-93e0-4384-b7b8-2bee258d35c2)
 ![creative](https://github.com/user-attachments/assets/2d2ad496-dde8-4b2c-9670-9bda53f0ee3d)![super](https://github.com/user-attachments/assets/a3b260dc-6174-45a8-9865-1205746be544)![nerd](https://github.com/user-attachments/assets/79672904-0d1f-41dd-83ae-bb98de591a6c)
