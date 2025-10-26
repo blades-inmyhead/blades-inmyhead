@@ -1,12 +1,14 @@
 
 
 
-꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=hatred&color=611212&style=plastic)꒱![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/283cb0c0-dafe-4b6f-ad59-5f5d3e7e9f7f)
+꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=youtube.views&color=611212&style=plastic)꒱
 
 
-cuties
+
+cuties u HAVE to follow okay?
+
 <@B1mjini @uxpr1ht HELLO MY CHILDREN.. !!!!!!!!!!!!!! , @Mordecai-thebird HELLO TWIN   k , @black-sh33p + @DONOTCOPY-p1ssyy + @DoNotCopyy HI MAMAAAA HI PAPAAAA!!!!3
-they all play.,, ![life is fun](https://github.com/user-attachments/assets/de545a23-840c-4f62-ba67-b7ba150ee260) 
+at the end, they all play.,, ![life is fun](https://github.com/user-attachments/assets/de545a23-840c-4f62-ba67-b7ba150ee260) 
 
 
 ![IMG-8955](https://github.com/user-attachments/assets/95a4e385-ff01-494d-9739-31fefd69c828)
