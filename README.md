@@ -1,7 +1,7 @@
 
 
 
-꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=youtube.views&color=611212&style=plastic)꒱
+꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=youtubeviews&color=611212&style=plastic)꒱
 
 
 
