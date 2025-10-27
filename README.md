@@ -7,9 +7,11 @@
 
 cuties u HAVE to follow okay?
 
-<@B1mjini @uxpr1ht HELLO MY CHILDREN.. !!!!!!!!!!!!!! , @Mordecai-thebird HELLO TWIN   k , @black-sh33p + @DONOTCOPY-p1ssyy + @DoNotCopyy HI MAMAAAA HI PAPAAAA!!!!3
-at the end, they all play.,, ![life is fun](https://github.com/user-attachments/assets/de545a23-840c-4f62-ba67-b7ba150ee260) 
+<@B1mjini @uxpr1ht HELLO MY CHILDREN.. !!!!!!!!!!!!!! , @Mordecai-thebird HELLO TWIN..k , @black-sh33p + @DONOTCOPY-p1ssyy + @DoNotCopyy HI MAMAAAA HI PAPAAAA!!!!3
 
+═════════════════════════════════════════════════════════════════════════════════════
+
+ [꒰atabook꒱](https://internet-angel.atabook.org/)︶︶︶[꒰Strawpage꒱](https://nyanyannyannyannyan.straw.page/)︶︶︶[꒰prns page꒱)](https://en.pronouns.page/@from_love2hatred)
 
 ![IMG-8955](https://github.com/user-attachments/assets/95a4e385-ff01-494d-9739-31fefd69c828)
 
@@ -35,7 +37,7 @@ at the end, they all play.,, ![life is fun](https://github.com/user-attachments/
 ![darling](https://github.com/user-attachments/assets/a1efe665-b3cc-4cb1-89c4-345ce24450f2)
 ![loved](https://github.com/user-attachments/assets/29692a87-1ffe-4caa-9646-57db82f3beac)
 ![17](https://github.com/user-attachments/assets/6c5e298c-800d-41c2-bd76-adfc5710c139)
-
+ ![life is fun](https://github.com/user-attachments/assets/de545a23-840c-4f62-ba67-b7ba150ee260) 
 
 
 
