@@ -41,10 +41,10 @@ cuties u HAVE to follow okay?
 
 
 
-<![d561r6o-f31f6a98-17bc-44ca-a120-8076f5a28aef](https://github.com/user-attachments/assets/481d5391-5a6d-4df1-b0d6-80e2d578d4f6)
+![d561r6o-f31f6a98-17bc-44ca-a120-8076f5a28aef](https://github.com/user-attachments/assets/481d5391-5a6d-4df1-b0d6-80e2d578d4f6)
 ![elZLOl3](https://github.com/user-attachments/assets/b87e27f1-ab1d-44c5-9654-6b64d24a68a1)
-![blinkiesCafe-b1](https://github.com/user-attachments/assets/7d2d7fa7-5c5c-48c4-a0fa-5d8244ab0cf7)
 ![undefined - Imgur](https://github.com/user-attachments/assets/a1fedd5f-0a17-4587-b65b-1dbd699e7fff)
+![blinkiesCafe-b1](https://github.com/user-attachments/assets/7d2d7fa7-5c5c-48c4-a0fa-5d8244ab0cf7)
 <img width="110" height="111" alt="acdasd" src="https://github.com/user-attachments/assets/4e314cc7-0b86-44a7-bd16-3a92df159f49" />
 ![d3ks230-06729a81-2006-4fcc-8081-e1a910d53602](https://github.com/user-attachments/assets/bf5dbf92-4dac-4878-8bf3-16a69107c72e)
 <img width="99" height="56" alt="acdasd" src="https://github.com/user-attachments/assets/3c5c1694-9d77-4c9a-81dc-dec8d078b1b7" />
@@ -57,7 +57,6 @@ cuties u HAVE to follow okay?
 ![blinkiesCafe-7l](https://github.com/user-attachments/assets/8e16d15f-94d4-43a6-9fd8-74a0d99e0fbf)
 <img width="99" height="56" alt="strawberry_stamp_by_kezzi_rose_d1c5nph-fullview" src="https://github.com/user-attachments/assets/a1b73dfe-6129-40aa-8eb7-ba831393bfa4" />
 ![blinkiesCafe-UC](https://github.com/user-attachments/assets/0ac5a3b6-c417-4695-8af4-e3a825e9755a)
-![blinkiesCafe-dv](https://github.com/user-attachments/assets/8afb95cd-ee41-45b1-ad58-7d989e8c3a5d)
 ![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/18a75799-1bfb-4ee6-8cc7-97768d88e2e9)
 ![d8ju1uf-71ad8977-f36a-4063-aa2c-5fd1fde68da9](https://github.com/user-attachments/assets/559f1430-9d38-421c-a107-75d306328897)
 ![d8ju1uf-71ad8977-f36a-4063-aa2c-5fd1fde68da9](https://github.com/user-attachments/assets/0c081e4e-79e2-4c35-aaaf-0defc239b4ad)
@@ -84,7 +83,7 @@ cuties u HAVE to follow okay?
 <img width="99" height="56" alt="dk1g7vs-2dd60512-3308-46a8-a8b2-8e5b4c4646cb" src="https://github.com/user-attachments/assets/3b072bdb-25d7-4e8e-a0c0-f355fddb3765" />
 ![elZLOl3](https://github.com/user-attachments/assets/f263bef5-7515-497d-93ac-214d5b3ebd8c)
 ![rhfjerhfnefj](https://github.com/user-attachments/assets/04e4f357-b472-43d4-9f9d-5ae760cbb610)
-![3342-D3-F3-0-DF2-4556-A69-E-8090-F523-D966](https://github.com/user-attachments/assets/3988b6a6-1060-42a3-9a37-d5c4c3e90718)>
+![3342-D3-F3-0-DF2-4556-A69-E-8090-F523-D966](https://github.com/user-attachments/assets/3988b6a6-1060-42a3-9a37-d5c4c3e90718)
 ![706014obs23pkvu8](https://github.com/user-attachments/assets/c21b931d-ac15-49fb-b87c-2ec112c39d92)
 ![596139cp0vfzvrhv](https://github.com/user-attachments/assets/df66d57f-628e-45c6-b81a-b8e314892ddb)
 ![oreo](https://github.com/user-attachments/assets/6cd86786-1d4b-4f1b-8944-b6546c6d037a)
