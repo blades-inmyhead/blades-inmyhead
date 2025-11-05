@@ -1,19 +1,16 @@
 
 
 
-꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=youtubeviews&color=611212&style=plastic)꒱
+꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=cupcakes&color=lightgrey&style=plastic)꒱
 
 
 
-cuties u HAVE to follow okay?
 
-<@B1mjini @uxpr1ht HELLO MY CHILDREN.. !!!!!!!!!!!!!! , @Mordecai-thebird HELLO TWIN..k , @black-sh33p + @DONOTCOPY-p1ssyy + @DoNotCopyy HI MAMAAAA HI PAPAAAA!!!!3
 
 ═════════════════════════════════════════════════════════════════════════════════════
 
  [꒰atabook꒱](https://internet-angel.atabook.org/)︶︶︶[꒰Strawpage꒱](https://nyanyannyannyannyan.straw.page/)︶︶︶[꒰prns page꒱)](https://en.pronouns.page/@from_love2hatred)
 
-![IMG-8955](https://github.com/user-attachments/assets/95a4e385-ff01-494d-9739-31fefd69c828)
 
 
 
@@ -32,7 +29,8 @@ cuties u HAVE to follow okay?
 
 
 
----
+
+
 > ![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/39f121c3-13b8-4a25-86fc-76a0dbe335c8) gifs+stamps+blinkies+imvu buttons whatever.. too many i fear.
 
 ![oreo](https://github.com/user-attachments/assets/59c5a53e-4b1c-419b-bbef-2874355c796d) 
@@ -115,15 +113,8 @@ cuties u HAVE to follow okay?
 <img width="99" height="56" alt="02208168_original" src="https://github.com/user-attachments/assets/2432fabb-c894-4832-9696-8398f9098541" />
 
 
-hi someones spreading FAKE rumors of me. pls dont believe em ;w;
 
 
-picture dump
-hi ts mi art ok ? :eye-roll:
+art dump 
 
 <img width="1265" height="738" alt="2025_10_16_05m_Kleki" src="https://github.com/user-attachments/assets/3c4d33f3-a8a4-4821-b9f9-2875281d09d5" />
-
-
-random thing i made at 4 am
-
-![picmix com_13125618](https://github.com/user-attachments/assets/f3d62ee0-0ecf-48a8-a416-a39d5dac6321)
