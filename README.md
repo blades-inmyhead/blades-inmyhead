@@ -18,16 +18,13 @@
 ![c2f8724a](https://github.com/user-attachments/assets/f506dd80-ca1c-4052-a16d-79fa77f30c4a)꒰ ִ ۫ hi im sun i really dont know what to say ok bye
 
 
-![2DNGCyT](https://github.com/user-attachments/assets/57727d3c-5a13-4edf-af39-bed2c544b82c)꒰ ִ ۫ byi: i make execution jokes .. okok? okok , free cuds ALWAYSSS.. but if im with friends PRETTY please ask to lala..ok? ok, i unfollow people that are weirdoss or exposed or something and if their my ex friends friend ok im SORRY, i block people that are my ex friends or my exs friends friend lala or i just dont like them in general
+![2DNGCyT](https://github.com/user-attachments/assets/57727d3c-5a13-4edf-af39-bed2c544b82c)꒰ ִ ۫ byi: i make execution jokes .. okok? okok , free cuds ALWAYSSS.. but if im with friends PRETTY please ask to lala
 
 
-![c2f8724a](https://github.com/user-attachments/assets/f506dd80-ca1c-4052-a16d-79fa77f30c4a)꒰ ִ ۫ fandoms: yandere simulator i do NOT support the creator, dandys world, forsaken i do NOT support the devs, fpe , more just ask me!
-
-
-![2DNGCyT](https://github.com/user-attachments/assets/57727d3c-5a13-4edf-af39-bed2c544b82c)꒰ ִ ۫dni:,, basic dni citera, darkshipper proshippers whatever u are, weirdos in general, -9 and 20+ ![dd0d7c18](https://github.com/user-attachments/assets/47122425-b2e7-4be8-a4f3-a7ffb758f169)
+![c2f8724a](https://github.com/user-attachments/assets/f506dd80-ca1c-4052-a16d-79fa77f30c4a)꒰ ִ ۫dni:,, basic dni citera, darkshipper proshippers whatever u are, weirdos in general, -9 and 20+ ![dd0d7c18](https://github.com/user-attachments/assets/47122425-b2e7-4be8-a4f3-a7ffb758f169)
 
  
- ꒰ ִ ۫ wow my kins..: sprout[fictkin], astro [irl], ginger[fictkin], 
+ ![2DNGCyT](https://github.com/user-attachments/assets/57727d3c-5a13-4edf-af39-bed2c544b82c)꒰ ִ ۫ wow my kins..: sprout[fictkin], astro [irl], ginger[fictkin], 
 
 ![c2f8724a](https://github.com/user-attachments/assets/f506dd80-ca1c-4052-a16d-79fa77f30c4a)꒰ ִ ۫well blinkies,stamps and imvu buttons IN HERE!!..  ![NcQaKt0](https://github.com/user-attachments/assets/f8d672eb-c542-4b08-841f-ca37411e3ea0)
 
@@ -110,10 +107,4 @@
 ![mikumiku](https://github.com/user-attachments/assets/bedcc918-dde3-4fb7-89f9-1e94855b5e1b)
 <img width="99" height="56" alt="amongus" src="https://github.com/user-attachments/assets/465262e7-3024-44f2-ae65-c22a79352edc" />
 <img width="99" height="56" alt="02208168_original" src="https://github.com/user-attachments/assets/2432fabb-c894-4832-9696-8398f9098541" />
- </wowstuff>
-
-
-
-art dump 
-
-<img width="1265" height="738" alt="2025_10_16_05m_Kleki" src="https://github.com/user-attachments/assets/3c4d33f3-a8a4-4821-b9f9-2875281d09d5" />
+ </details>
