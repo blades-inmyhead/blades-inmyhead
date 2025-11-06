@@ -6,7 +6,7 @@
 
 
 ═════════════════════════════════════════════════════════════════════════════════════
-![81VLCaPklML _AC_UL480_QL65_](https://github.com/user-attachments/assets/71dc906e-b1a5-49bc-b629-1667736efd4c)![81VLCaPklML _AC_UL480_QL65_](https://github.com/user-attachments/assets/71dc906e-b1a5-49bc-b629-1667736efd4c)![81VLCaPklML _AC_UL480_QL65_](https://github.com/user-attachments/assets/71dc906e-b1a5-49bc-b629-1667736efd4c)
+![81VLCaPklML _AC_UL480_QL65_](https://github.com/user-attachments/assets/71dc906e-b1a5-49bc-b629-1667736efd4c)![81VLCaPklML _AC_UL480_QL65_](https://github.com/user-attachments/assets/71dc906e-b1a5-49bc-b629-1667736efd4c)
 
  ᛝ[꒰atabook꒱](https://internet-angel.atabook.org/)︶︶︶[꒰Strawpage,rmking soon꒱](https://nyanyannyannyannyan.straw.page/)︶︶︶[꒰prns page꒱)](https://en.pronouns.page/@from_love2hatred)ᛝ
 
