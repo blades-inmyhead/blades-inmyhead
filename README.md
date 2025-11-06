@@ -1,44 +1,46 @@
 
 
-
 ꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=cupcakes&color=lightgrey&style=plastic)꒱
 
 
 
 
-
 ═════════════════════════════════════════════════════════════════════════════════════
+![81VLCaPklML _AC_UL480_QL65_](https://github.com/user-attachments/assets/71dc906e-b1a5-49bc-b629-1667736efd4c)![81VLCaPklML _AC_UL480_QL65_](https://github.com/user-attachments/assets/71dc906e-b1a5-49bc-b629-1667736efd4c)![81VLCaPklML _AC_UL480_QL65_](https://github.com/user-attachments/assets/71dc906e-b1a5-49bc-b629-1667736efd4c)
 
- [꒰atabook꒱](https://internet-angel.atabook.org/)︶︶︶[꒰Strawpage꒱](https://nyanyannyannyannyan.straw.page/)︶︶︶[꒰prns page꒱)](https://en.pronouns.page/@from_love2hatred)
-
-
-
+ ᛝ[꒰atabook꒱](https://internet-angel.atabook.org/)︶︶︶[꒰Strawpage,rmking soon꒱](https://nyanyannyannyannyan.straw.page/)︶︶︶[꒰prns page꒱)](https://en.pronouns.page/@from_love2hatred)ᛝ
 
 
 
 
 
 
+![c2f8724a](https://github.com/user-attachments/assets/f506dd80-ca1c-4052-a16d-79fa77f30c4a)꒰ ִ ۫ hi im sun i really dont know what to say ok bye
+
+
+![2DNGCyT](https://github.com/user-attachments/assets/57727d3c-5a13-4edf-af39-bed2c544b82c)꒰ ִ ۫ byi: i make execution jokes .. okok? okok , free cuds ALWAYSSS.. but if im with friends PRETTY please ask to lala..ok? ok, i unfollow people that are weirdoss or exposed or something and if their my ex friends friend ok im SORRY, i block people that are my ex friends or my exs friends friend lala or i just dont like them in general
+
+
+![c2f8724a](https://github.com/user-attachments/assets/f506dd80-ca1c-4052-a16d-79fa77f30c4a)꒰ ִ ۫ fandoms: yandere simulator i do NOT support the creator, dandys world, forsaken i do NOT support the devs, fpe , more just ask me!
+
+
+![2DNGCyT](https://github.com/user-attachments/assets/57727d3c-5a13-4edf-af39-bed2c544b82c)꒰ ִ ۫dni:,, basic dni citera, darkshipper proshippers whatever u are, weirdos in general, -9 and 20+ ![dd0d7c18](https://github.com/user-attachments/assets/47122425-b2e7-4be8-a4f3-a7ffb758f169)
+
+ 
+ ꒰ ִ ۫ wow my kins..: sprout[fictkin], astro [irl], ginger[fictkin], 
+
+![c2f8724a](https://github.com/user-attachments/assets/f506dd80-ca1c-4052-a16d-79fa77f30c4a)꒰ ִ ۫well blinkies,stamps and imvu buttons IN HERE!!..  ![NcQaKt0](https://github.com/user-attachments/assets/f8d672eb-c542-4b08-841f-ca37411e3ea0)
 
 
 
-
-
-
-
-
-
-
-
-
-> ![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/39f121c3-13b8-4a25-86fc-76a0dbe335c8) gifs+stamps+blinkies+imvu buttons whatever.. too many i fear.
-
+ <details>  
+  
+ ![d58ewxe-cc3751a0-729e-4f0c-9115-981e0c1156ea](https://github.com/user-attachments/assets/39f121c3-13b8-4a25-86fc-76a0dbe335c8) 
 ![oreo](https://github.com/user-attachments/assets/59c5a53e-4b1c-419b-bbef-2874355c796d) 
 ![mother](https://github.com/user-attachments/assets/b9249687-8230-4cc7-9051-a5d5b8c8da37)![happy](https://github.com/user-attachments/assets/71de099e-9c1d-480a-9074-a663e5b15529)
 ![best-friend](https://github.com/user-attachments/assets/abfabd47-2daf-4301-9d64-26372b3171d1)![fresh](https://github.com/user-attachments/assets/46ea2d2a-93e0-4384-b7b8-2bee258d35c2)
 ![creative](https://github.com/user-attachments/assets/2d2ad496-dde8-4b2c-9670-9bda53f0ee3d)![super](https://github.com/user-attachments/assets/a3b260dc-6174-45a8-9865-1205746be544)![nerd](https://github.com/user-attachments/assets/79672904-0d1f-41dd-83ae-bb98de591a6c)
 ![hazardous](https://github.com/user-attachments/assets/aef34554-4e07-44f0-abe9-41b28ed3f9d0)![addictive](https://github.com/user-attachments/assets/af3e128c-a200-4e73-97c3-599cb1e69e3c)
-
 ![lolita](https://github.com/user-attachments/assets/5eabbffa-ff99-443a-9c91-8cdf28b9f79b)
 ![hug-me](https://github.com/user-attachments/assets/2a9f14e7-ba27-4834-b17b-dd3f9db10df3)
 ![meow](https://github.com/user-attachments/assets/fe17f372-70e0-46b3-9b46-acaaaec7cdf8)
@@ -46,9 +48,6 @@
 ![loved](https://github.com/user-attachments/assets/29692a87-1ffe-4caa-9646-57db82f3beac)
 ![17](https://github.com/user-attachments/assets/6c5e298c-800d-41c2-bd76-adfc5710c139)
  ![life is fun](https://github.com/user-attachments/assets/de545a23-840c-4f62-ba67-b7ba150ee260) 
-
-
-
 ![d561r6o-f31f6a98-17bc-44ca-a120-8076f5a28aef](https://github.com/user-attachments/assets/481d5391-5a6d-4df1-b0d6-80e2d578d4f6)
 ![elZLOl3](https://github.com/user-attachments/assets/b87e27f1-ab1d-44c5-9654-6b64d24a68a1)
 ![undefined - Imgur](https://github.com/user-attachments/assets/a1fedd5f-0a17-4587-b65b-1dbd699e7fff)
@@ -111,7 +110,7 @@
 ![mikumiku](https://github.com/user-attachments/assets/bedcc918-dde3-4fb7-89f9-1e94855b5e1b)
 <img width="99" height="56" alt="amongus" src="https://github.com/user-attachments/assets/465262e7-3024-44f2-ae65-c22a79352edc" />
 <img width="99" height="56" alt="02208168_original" src="https://github.com/user-attachments/assets/2432fabb-c894-4832-9696-8398f9098541" />
-
+ </wowstuff>
 
 
 
