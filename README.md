@@ -8,7 +8,7 @@
 ═════════════════════════════════════════════════════════════════════════════════════
 ![81VLCaPklML _AC_UL480_QL65_](https://github.com/user-attachments/assets/71dc906e-b1a5-49bc-b629-1667736efd4c)![81VLCaPklML _AC_UL480_QL65_](https://github.com/user-attachments/assets/71dc906e-b1a5-49bc-b629-1667736efd4c)
 
- ᛝ[꒰atabook꒱](https://internet-angel.atabook.org/)︶︶︶[꒰Strawpage,rmking soon꒱](https://nyanyannyannyannyan.straw.page/)︶︶︶[꒰prns page꒱)](https://en.pronouns.page/@from_love2hatred)ᛝ
+ ᛝ[꒰atabook꒱](https://internet-angel.atabook.org/)︶︶︶[꒰Strawpage,I LOVE ALL THE GIMMICKS MWAH MWAH KISSES U ALL ON THE FOREHEAD :HEART:꒱](https://nyanyannyannyannyan.straw.page/)︶︶︶[꒰prns page꒱)](https://en.pronouns.page/@from_love2hatred)ᛝ
 
 
 
@@ -21,7 +21,7 @@
 ![2DNGCyT](https://github.com/user-attachments/assets/57727d3c-5a13-4edf-af39-bed2c544b82c)꒰ ִ ۫ byi: i make execution jokes .. okok? okok , free cuds ALWAYSSS.. but if im with friends PRETTY please ask to lala
 
 
-![c2f8724a](https://github.com/user-attachments/assets/f506dd80-ca1c-4052-a16d-79fa77f30c4a)꒰ ִ ۫dni:,, basic dni citera, darkshipper proshippers whatever u are, weirdos in general, -9 and 20+ ![dd0d7c18](https://github.com/user-attachments/assets/47122425-b2e7-4be8-a4f3-a7ffb758f169)
+![c2f8724a](https://github.com/user-attachments/assets/f506dd80-ca1c-4052-a16d-79fa77f30c4a)꒰ ִ ۫dni:,, basic dni citera, darkshipper proshippers whatever u are maybb dni or u can be on extreme thin ice, weirdos in general, -9 and 20+ ![dd0d7c18](https://github.com/user-attachments/assets/47122425-b2e7-4be8-a4f3-a7ffb758f169)
 
  
  ![2DNGCyT](https://github.com/user-attachments/assets/57727d3c-5a13-4edf-af39-bed2c544b82c)꒰ ִ ۫ wow my kins..: sprout[fictkin], astro [irl], ginger[fictkin], 
