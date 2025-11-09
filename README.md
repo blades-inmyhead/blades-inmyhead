@@ -21,16 +21,18 @@
 
 
 
- ᛝ[꒰atabook꒱](https://internet-angel.atabook.org/)︶ 𓎟𓎡 ︶[꒰Strawpage,I LOVE ALL THE GIMMICKS:HEART:꒱](https://nyanyannyannyannyan.straw.page/)︶ 𓎟𓎡 ︶[꒰prns page꒱)](https://en.pronouns.page/@from_love2hatred)ᛝ
+ ᛝ[꒰atabook꒱](https://internet-angel.atabook.org/)︶ 𓎟𓎡 ︶[꒰Strawpage,I LOVE ALL THE GIMMICKS:HEART:꒱](https://nyanyannyannyannyan.straw.page/)︶ 𓎟𓎡 ︶[꒰prns page꒱)](https://en.pronouns.page/@from_love2hatred)︶ 𓎟𓎡 ︶[꒰lit where u find me in emojicombos](https://emojicombos.com/blades--inmyhead)ᛝ
   
-✙𓄧𓏵 Sprout/ , she.they Preferred most but any honestly  ´ཀ`  
+✙𓄧𓏵 ⨾ Sp𝒓out/ , sh𝒆.th𝒆y P𝒓eferred most but 𝒂ny hon𝒆stly  ´ཀ`  
 
-𓏵𓏵𓏵  𓈒۫　ׅ ✧  boomshakalaka
+𓏵𓏵𓏵  𓈒۫　ׅ ✧ ⨾ hi okokkkk!!.. i do bio reqs on emojicombos.com   ྀི ;w;!!!check em out if u want
 
-𓏵𓏵𓏵 ⠀ byi; i make execution jokes, sometimes dark humor. i may be rude jokingly ALOTT.. with friends. ˖ ⁺ ༝ ۫
+𓏵𓏵𓏵 ⠀ byi ⨾ i make execution jokes, sometimes dark humor. i may be rude jokingly ALOTT.. with friends. ˖ ⁺ ༝ ۫
 
-𓏵𓏵𓏵 ohh wip finishing tmr
-
+𓏵𓏵𓏵  ⨾ ⨾ Gou𝒓dy . 𝒂ny prns,︵︵  ྀི 
+            ྀ 𓌔 M- m𝒂ma?.. p𝒂pa? w- where 𝒂re you! (•́  .  •̀) ,,ꕀ
+f𝒓i𝒆nds  ⨾         𓉸ྀི
+ for somi. HAD TO PUT IT HERE SO SHE COULD COPY IT OK.. 
 
 
 
