@@ -29,7 +29,7 @@
 
 𓏵𓏵𓏵 ⠀ byi ⨾ i make execution jokes, sometimes dark humor. i may be rude jokingly ALOTT.. with friends. ˖ ⁺ ༝ ۫
 
-𓏵𓏵𓏵  ⨾ 
+𓏵𓏵𓏵  ⨾ hey! see that little details button? press it to see stamps, blinkies.. and imvu buttons i like! + collected..
 
 
  <details>  
