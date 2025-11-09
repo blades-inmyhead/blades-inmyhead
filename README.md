@@ -1,32 +1,36 @@
+![TQJAdiY](https://github.com/user-attachments/assets/e69c7091-6811-4f88-922e-722a9a5bf9d9)
+![tumblr-f1c6a60847e71243945521b98a86c90e-f2337fcf-75](https://github.com/user-attachments/assets/1e8856ac-4668-49a8-943d-7e96428f5dd3)![tumblr-9fa8a56c89a6ddadea8dabc3addf1b3d-080c47ba-75](https://github.com/user-attachments/assets/51373052-7765-48e5-aa99-56034d34a50c)![tumblr-b756793bf4485e149ef681422772a012-749e40c3-75](https://github.com/user-attachments/assets/a05b2606-ffac-449e-9183-681e0f9f00d7)
+![tumblr-1ab6900ef9c3952a6cc07133bfd8b0cd-7f249825-75](https://github.com/user-attachments/assets/d9caa6e9-78a1-4c92-8953-11fd95305ecd)![tumblr-638e3d14c80f0441aa407ca401cd64c7-e0c4b460-75](https://github.com/user-attachments/assets/db509ddb-fe74-4d5b-889f-15daa40861cf)![tumblr-991d95663630f9ab3503965a55333cd7-d818bc57-75](https://github.com/user-attachments/assets/66690049-cd1e-4b03-9f6f-8516cc0adc00)![xn4SV2G](https://github.com/user-attachments/assets/39417121-0e16-4fb5-88c7-58571c5660ab)
+´ω`
 
-
-꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=cupcakes&color=lightgrey&style=plastic)꒱
-
+꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=cupcakes&color=a78662&style=plastic)꒱
 
 
 
 ═════════════════════════════════════════════════════════════════════════════════════
-![81VLCaPklML _AC_UL480_QL65_](https://github.com/user-attachments/assets/71dc906e-b1a5-49bc-b629-1667736efd4c)![81VLCaPklML _AC_UL480_QL65_](https://github.com/user-attachments/assets/71dc906e-b1a5-49bc-b629-1667736efd4c)
-
- ᛝ[꒰atabook꒱](https://internet-angel.atabook.org/)︶︶︶[꒰Strawpage,I LOVE ALL THE GIMMICKS MWAH MWAH KISSES U ALL ON THE FOREHEAD :HEART:꒱](https://nyanyannyannyannyan.straw.page/)︶︶︶[꒰prns page꒱)](https://en.pronouns.page/@from_love2hatred)ᛝ
-
-
-
-
-
-
-![c2f8724a](https://github.com/user-attachments/assets/f506dd80-ca1c-4052-a16d-79fa77f30c4a)꒰ ִ ۫ hi im sun i really dont know what to say ok bye
-
-
-![2DNGCyT](https://github.com/user-attachments/assets/57727d3c-5a13-4edf-af39-bed2c544b82c)꒰ ִ ۫ byi: i make execution jokes .. okok? okok , free cuds ALWAYSSS.. but if im with friends PRETTY please ask to lala
-
-
-![c2f8724a](https://github.com/user-attachments/assets/f506dd80-ca1c-4052-a16d-79fa77f30c4a)꒰ ִ ۫dni:,, basic dni citera, darkshipper proshippers whatever u are maybb dni or u can be on extreme thin ice, weirdos in general, -9 and 20+ ![dd0d7c18](https://github.com/user-attachments/assets/47122425-b2e7-4be8-a4f3-a7ffb758f169)
+      🎞  🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞 🎞
 
  
- ![2DNGCyT](https://github.com/user-attachments/assets/57727d3c-5a13-4edf-af39-bed2c544b82c)꒰ ִ ۫ wow my kins..: sprout[fictkin], astro [irl], ginger[fictkin], 
 
-![c2f8724a](https://github.com/user-attachments/assets/f506dd80-ca1c-4052-a16d-79fa77f30c4a)꒰ ִ ۫well blinkies,stamps and imvu buttons IN HERE!!..  ![NcQaKt0](https://github.com/user-attachments/assets/f8d672eb-c542-4b08-841f-ca37411e3ea0)
+
+<img width="1280" height="128" alt="2799214_a10f5" src="https://github.com/user-attachments/assets/fd40fcd9-de6a-4ea1-80ae-55e8b01927af" />
+
+![tumblr-de5c2291991d2f31284693cb5b557bd5-2bceebf5-1280](https://github.com/user-attachments/assets/5a7c8d17-3c4c-4ed5-99c5-9be5a5757ab7)
+![tumblr-de5c2291991d2f31284693cb5b557bd5-2bceebf5-1280](https://github.com/user-attachments/assets/5a7c8d17-3c4c-4ed5-99c5-9be5a5757ab7)
+![tumblr-de5c2291991d2f31284693cb5b557bd5-2bceebf5-1280](https://github.com/user-attachments/assets/5a7c8d17-3c4c-4ed5-99c5-9be5a5757ab7)
+
+
+
+ ᛝ[꒰atabook꒱](https://internet-angel.atabook.org/)︶ 𓎟𓎡 ︶[꒰Strawpage,I LOVE ALL THE GIMMICKS:HEART:꒱](https://nyanyannyannyannyan.straw.page/)︶ 𓎟𓎡 ︶[꒰prns page꒱)](https://en.pronouns.page/@from_love2hatred)ᛝ
+  
+✙𓄧𓏵 Sprout/ , she.they Preferred most but any honestly  ´ཀ`  
+
+𓏵𓏵𓏵  𓈒۫　ׅ ✧  boomshakalaka
+
+𓏵𓏵𓏵 ⠀ byi; i make execution jokes, sometimes dark humor. i may be rude jokingly ALOTT.. with friends. ˖ ⁺ ༝ ۫
+
+𓏵𓏵𓏵 ohh wip finishing tmr
+
 
 
 
@@ -108,3 +112,5 @@
 <img width="99" height="56" alt="amongus" src="https://github.com/user-attachments/assets/465262e7-3024-44f2-ae65-c22a79352edc" />
 <img width="99" height="56" alt="02208168_original" src="https://github.com/user-attachments/assets/2432fabb-c894-4832-9696-8398f9098541" />
  </details>
+ 
+
