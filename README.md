@@ -29,11 +29,7 @@
 
 𓏵𓏵𓏵 ⠀ byi ⨾ i make execution jokes, sometimes dark humor. i may be rude jokingly ALOTT.. with friends. ˖ ⁺ ༝ ۫
 
-𓏵𓏵𓏵  ⨾ ⨾ Gou𝒓dy . 𝒂ny prns,︵︵  ྀི 
-            ྀ 𓌔 M- m𝒂ma?.. p𝒂pa? w- where 𝒂re you! (•́  .  •̀) ,,ꕀ
-f𝒓i𝒆nds  ⨾         𓉸ྀི
- for somi. HAD TO PUT IT HERE SO SHE COULD COPY IT OK.. 
-
+𓏵𓏵𓏵  ⨾ 
 
 
  <details>  
