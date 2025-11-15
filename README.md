@@ -34,7 +34,7 @@ ${{\color{#6c7986}{\textsf{byi. i m𝒂ke 𝒆x𝒆cuton jok𝒆s or som𝒆tim�
 
 
 
-✙ [꒰ata꒱](https://internet-angel.atabook.org/) 𓎟𓎡 [꒰strawpge꒱](https://nyanyannyannyannyan.straw.page/) 𓎟𓎡 [꒰prns page꒱](https://en.pronouns.page/@from_love2hatred) 𓎟𓎡 [꒰my bios+kaomojis꒱](https://emojicombos.com/blades--inmyhead) ✙
+✙ [꒰ata꒱](https://internet-angel.atabook.org/) 𓎟𓎡 [꒰strawpge꒱](https://nyanyannyannyannyan.straw.page/) 𓎟𓎡 [꒰prns page꒱](https://en.pronouns.page/@from_love2hatred) 𓎟𓎡 [꒰my bios+kaomojis꒱](https://emojicombos.com/blades--inmyhead) 𓎟𓎡 [꒰Commisions꒱](https://sunnygummycomms.straw.page/)✙
  
   
 
