@@ -15,7 +15,9 @@
 </div>
 
 <div align="center">
- ´ω`
+´ω' 
+
+	
 
       
 ${{\color{#929292}{\textsf{ 𓄧Sp𝒓out/sun , Nickn𝒂mes ar𝒆 ok . }}}}$
@@ -30,13 +32,10 @@ ${{\color{#6c7986}{\textsf{byi. i m𝒂ke 𝒆x𝒆cuton jok𝒆s or som𝒆tim�
 
 
 
+${{\color{#6c7986}{\textsf{bios+kaomojis ive made are free to use,}}}}$
+
+${{\color{#6c7986}{\textsf{unless its a commision . DO NOT say its ur work}}}}$
 
 
 
-
-✙ [꒰ata꒱](https://internet-angel.atabook.org/) 𓎟𓎡 [꒰strawpge꒱](https://nyanyannyannyannyan.straw.page/) 𓎟𓎡 [꒰prns page꒱](https://en.pronouns.page/@from_love2hatred) 𓎟𓎡 [꒰my bios+kaomojis꒱](https://emojicombos.com/blades--inmyhead) 𓎟𓎡 [꒰Commisions꒱](https://sunnygummycomms.straw.page/)✙
- 
-  
-
-        
-
+✙ [꒰ata꒱](https://internet-angel.atabook.org/) 𓎟𓎡 [꒰strawpge꒱](https://nyanyannyannyannyan.straw.page/) 𓎟𓎡 [꒰prns page꒱](https://en.pronouns.page/@from_love2hatred) 𓎟𓎡 [꒰my bios+kaomojis꒱](https://emojicombos.com/blades--inmyhead) 𓎟𓎡 [꒰Commisions꒱](https://sunnygummycomms.straw.page/)
