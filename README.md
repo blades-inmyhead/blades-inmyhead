@@ -38,4 +38,4 @@ ${{\color{#6c7986}{\textsf{unless its a commision . DO NOT say its ur work}}}}$
 
 
 
-✙ [꒰ata꒱](https://internet-angel.atabook.org/) 𓎟𓎡 [꒰strawpge꒱](https://nyanyannyannyannyan.straw.page/) 𓎟𓎡 [꒰prns page꒱](https://en.pronouns.page/@from_love2hatred) 𓎟𓎡 [꒰my bios+kaomojis꒱](https://emojicombos.com/blades--inmyhead) 𓎟𓎡 [꒰Commisions꒱](https://sunnygummycomms.straw.page/)
+✙ [꒰ata꒱](https://internet-angel.atabook.org/) 𓎟𓎡 [꒰strawpge꒱](https://nyanyannyannyannyan.straw.page/) 𓎟𓎡 [꒰prns page꒱](https://en.pronouns.page/@from_love2hatred) 𓎟𓎡 [꒰my bios+kaomojis꒱](https://emojicombos.com/blades--inmyhead) 𓎟𓎡 [꒰(being edited)Commisions꒱](:/nooo/sunnygummycomms.burp.page/)
