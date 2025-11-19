@@ -28,7 +28,9 @@ ${{\color{#929292}{\textsf{ 𓄧Sp𝒓out/sun , Nickn𝒂mes ar𝒆 ok . }}}}$
       
 ${{\color{#808992}{\textsf{sh𝒆.th𝒆y P𝒓eferred most but 𝒂ny hon𝒆stly⨾}}}}$
 
-${{\color{#6c7986}{\textsf{byi. i m𝒂ke 𝒆x𝒆cuton jok𝒆s or som𝒆tim𝒆s d𝒂rk humor a bit, lmk if it m𝒂kes u uncomf!}}}}$
+${{\color{#6c7986}{\textsf{byi. i m𝒂ke 𝒆x𝒆cuton jok𝒆s or som𝒆tim𝒆s d𝒂rk humor a bit, lmk if it m𝒂kes u uncomf!.}}}}$
+
+${{\color{#6c7986}{\textsf{doubl𝒆s c𝒂n int idm! , dont dr𝒂g on 𝒂bt the chr𝒂cter tho pl𝒂.}}}}$
 
 
 
@@ -38,4 +40,12 @@ ${{\color{#6c7986}{\textsf{unless its a commision . DO NOT say its ur work}}}}$
 
 
 
-✙ [꒰ata꒱](https://internet-angel.atabook.org/) 𓎟𓎡 [꒰strawpge꒱](https://nyanyannyannyannyan.straw.page/) 𓎟𓎡 [꒰prns page꒱](https://en.pronouns.page/@from_love2hatred) 𓎟𓎡 [꒰my bios+kaomojis꒱](https://emojicombos.com/blades--inmyhead) 𓎟𓎡 [꒰(being edited)Commisions꒱](:/nooo/sunnygummycomms.burp.page/)
+✙ [꒰ata꒱](https://internet-angel.atabook.org/) 𓎟𓎡 [꒰strawpge꒱](no//nyanyannyannyannyan.straw.page/) 𓎟𓎡 [꒰prns page꒱](https://en.pronouns.page/@from_love2hatred) 𓎟𓎡 [꒰my bios+kaomojis꒱](https://emojicombos.com/blades--inmyhead) 𓎟𓎡 [꒰(being edited)Commisions꒱](:/nooo/sunnygummycomms.burp.page/)
+
+
+
+
+${{\color{#6c7986}{\textsf{python progr𝒂mm𝒆r. bl𝒆nd𝒆r us𝒆r!! . 𝒂rtist(?) (๑;⩊;๑)}}}}$
+
+
+${{\color{#6c7986}{\textsf{tsk tsk still learning python tho hmph..}}}}$
