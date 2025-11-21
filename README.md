@@ -40,7 +40,7 @@ ${{\color{#6c7986}{\textsf{unless its a commision . DO NOT say its ur work}}}}$
 
 
 
-✙ [꒰ata꒱](https://internet-angel.atabook.org/) 𓎟𓎡 [꒰strawpge꒱](no//nyanyannyannyannyan.straw.page/) 𓎟𓎡 [꒰prns page꒱](https://en.pronouns.page/@from_love2hatred) 𓎟𓎡 [꒰my bios+kaomojis꒱](https://emojicombos.com/blades--inmyhead) 𓎟𓎡 [꒰(being edited)Commisions꒱](:/nooo/sunnygummycomms.burp.page/)
+✙ ꒰a[ta꒱](https://internet-angel.atabook.org/) 𓎟𓎡 ꒰stra[wpge꒱](no//nyanyannyannyannyan.straw.page/) 𓎟𓎡 ꒰prn[s page꒱](https://en.pronouns.page/@from_love2hatred) 𓎟𓎡 ꒰my bios[+kaomojis꒱](https://emojicombos.com/blades--inmyhead) ✙
 
 
 
