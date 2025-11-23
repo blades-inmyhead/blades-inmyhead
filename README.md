@@ -36,7 +36,7 @@ ${{\color{#6c7986}{\textsf{doubl𝒆s c𝒂n int idm! , dont dr𝒂g on 𝒂bt t
 
 ${{\color{#6c7986}{\textsf{bios+kaomojis ive made are free to use,}}}}$
 
-${{\color{#6c7986}{\textsf{unless its a commision . DO NOT say its ur work}}}}$
+${{\color{#6c7986}{\textsf{hi comm strawpage is in work be paitent lala}}}}$
 
 
 
